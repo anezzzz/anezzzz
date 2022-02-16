@@ -1,0 +1,6 @@
+- Hi, I’m @anezzzz and i'm a femboy
+- I'm interested in coding and gaming
+- I'm currently learning c++
+- How to reach me:
+  - DC: Anez#1237
+  - Twitter: @femboyanez
